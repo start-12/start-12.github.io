@@ -19,7 +19,7 @@ There are many reasons to can your food.
 * Alright, enough with the small talk. 
 
 
-## **canon** Tools and Supplies You’ll Need
+## **Canon** Tools and Supplies You’ll Need
 
 
 
@@ -44,8 +44,6 @@ Use this to grab your hot **ij** out of the canner.
 
 ### **canon** Salt
 The preservative you’ll be using.
-
-
 
 
 
