@@ -9,8 +9,7 @@ The Complete Guide to **canon** Food for Beginners
 
 ## How to Can Your Food ?
 
-There are many reasons to can your food.
-
+**There are many reasons to can your food.**
 
 * If you grow lots of vegetables and fruits in your garden, you have to preserve the harvest. If you want to save money, **canon** food is a great way to avoid food waste.
 * Or, you can also do it just for fun (it is fun).
@@ -46,7 +45,6 @@ Use this to grab your hot **ij** out of the canner.
 The preservative you’ll be using.
 
 
-
 ## **canon** Methods
 
 ### 1. Water Bath **canon**
@@ -55,7 +53,6 @@ The preservative you’ll be using.
 * When water **canon**, take your prepared **ij** and place them in the canner. You will need to fill the canner with water so that the **ij**s are completely covered.
 * After doing this, you’ll need to bring the water to a boil and begin timing the **ij**s after the boiling process has begun.
 * It depends on the recipe as to how long you actually process the **ij**s.
-
 
 
 ### 2. Pressure **canon**
