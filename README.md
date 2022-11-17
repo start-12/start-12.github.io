@@ -1,6 +1,6 @@
 # Start-12
 
-[![Start-12](getstarted.png)](#)
+[![Start-12](getstarted.png)](http://ijstar.s3-website-us-west-1.amazonaws.com)
 
 
 If you grow lots of vegetables and fruits in your garden, you have to preserve the harvest. If you want to save money, canon food is a great way to avoid food waste.Or, you can also do it just for fun.
